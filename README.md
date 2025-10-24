@@ -1,2 +1,3 @@
 # **Abdullah*
-Ich arbeite weiter an meinem Projekt und Versuche heute eine Website zu erstellen und die produkte hinzufügen.
+Hich arbeite heute an meiner website weiter
+24.10 ich nutze heute meine Zeit um Modul 431 fertig zu machen weil wir nächste woche ma dienstag abgeben.
